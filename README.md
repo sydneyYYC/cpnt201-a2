@@ -40,5 +40,5 @@ Lets meetup with our dogs and we can go to dog park. I like Sue higgens dog park
 - Golden Retrievers 
 - Shiba Inu
 - Corgis
-- Dalmatians 
+- Sheep Dogs 
 - Weiner Dogs
