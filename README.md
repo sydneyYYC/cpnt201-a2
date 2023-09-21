@@ -25,3 +25,6 @@ WOW !! so cute :heart_eyes:
 - Switch it up every once and a while , dogs like to smell new things 
 - Check the pavement or the ground to make sure its not too cold or too hot on their paws
 - Consider boots or sweaters for you dog if the weather is cold or ground is not ideal
+
+### Dog Friendly Trails
+Here are some great places to walk your dog in Calgary AB: [2023 Best 10 Trails to Walk your Dog in Calgary](https://www.alltrails.com/canada/alberta/calgary/dogs-leash)
