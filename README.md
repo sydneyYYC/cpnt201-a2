@@ -14,4 +14,4 @@ This is my Dog. His name is George.
 
 this is my dog Aelin.
 
-![Black and tan king charles mix](assests/IMG_0721.jpg)
+![Black and tan king charles mix](assets/IMG_0721.jpg)
