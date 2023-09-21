@@ -29,3 +29,4 @@ WOW !! so cute :heart_eyes:
 ### Dog Friendly Trails
 Here are some great places to walk your dog in Calgary AB: [2023 Best 10 Trails to Walk your Dog in Calgary](https://www.alltrails.com/canada/alberta/calgary/dogs-leash)
 
+OMG WOW dogs are so great I love my dog. Hes turning 3 this year. So small. What a good boy. 
