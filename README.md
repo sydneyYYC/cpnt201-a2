@@ -5,7 +5,7 @@
 ### Things to bring when walking a dog 
 - leash
 - harness
-- poop bags - I use the ones from the PetPlanet 
+- poop bags :hankey:
 - water bottle 
 
 This is my Dog. His name is **George.**
