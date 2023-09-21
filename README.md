@@ -12,7 +12,7 @@ This is my Dog. His name is **George.**
 
 ![golden doodle](assets/IMG_2908.jpeg)
 
-this is my dog Aelin.
+this is my dog *Aelin*.
 
 ![Black and tan king charles mix](assets/IMG_0721.jpg)
 
