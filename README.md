@@ -5,7 +5,7 @@
 ### Things to bring when walking a dog 
 - leash
 - harness
-- poop bags 
+- poop bags - I use the ones from the PetPlanet 
 - water bottle 
 
 This is my Dog. His name is **George.**
@@ -28,3 +28,4 @@ WOW !! so cute :heart_eyes:
 
 ### Dog Friendly Trails
 Here are some great places to walk your dog in Calgary AB: [2023 Best 10 Trails to Walk your Dog in Calgary](https://www.alltrails.com/canada/alberta/calgary/dogs-leash)
+
