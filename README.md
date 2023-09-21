@@ -23,3 +23,5 @@ WOW !! so cute :heart_eyes:
 - Avoid other dogs and people if your dog has a tendency to jump  (this can be fixed with gradual introduction to stimulus )
 - Always carry extra bags you never know! 
 - Switch it up every once and a while , dogs like to smell new things 
+- Check the pavement or the ground to make sure its not too cold or too hot on their paws
+- Consider boots or sweaters for you dog if the weather is cold or ground is not ideal
