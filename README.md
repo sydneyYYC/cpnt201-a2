@@ -34,3 +34,11 @@ omg I can't believe aelin is already two years old!
 no conflict here 🐕 
 
 Lets meetup with our dogs and we can go to dog park. I like Sue higgens dog park in the SE. 
+:sparkles:
+
+### My fav kind of dogs are:
+- Golden Retrievers 
+- Shiba Inu
+- Corgis
+- Sheepdog 
+- Weiner Dogs
